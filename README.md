@@ -18,4 +18,4 @@
 ---
 [![](https://komarev.com/ghpvc/?username=wynxo&icon=0&color=4)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+<!-- hey bud wat are you doing here?? -->
